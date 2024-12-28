@@ -1,0 +1,4 @@
+-belajar sabar 
+-belajar konsisten
+-belajar disiplin
+-belajar fokus
